@@ -1,2 +1,0 @@
-# exxis-group-colombia
-Landing
